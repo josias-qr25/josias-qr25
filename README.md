@@ -1,3 +1,3 @@
-Hello there!
+Computer Science, Motorsports Enthusiast
 
-My name is Josias Maldonado.
+"What is man, that thou art mindful of him? and the son of man, that thou visitest him?"
