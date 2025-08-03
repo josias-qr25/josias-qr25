@@ -1,1 +1,1 @@
-Junior Software Engineer
+Junior Software Engineer | ΙΧΘΥΣ
