@@ -1,1 +1,1 @@
-Junior Software Engineer | ΙΧΘΥΣ
+Junior Software Engineer | Product Designer
