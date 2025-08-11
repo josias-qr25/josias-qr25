@@ -1,1 +1,1 @@
-Junior Software Engineer | Product Designer
+Python Programmer | Product Designer | Motorsports Enthusiast
