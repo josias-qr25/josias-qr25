@@ -1,1 +1,1 @@
-Embedded Systems Engineer
+Junior Software Engineer | Automotive Systems Focus
