@@ -1,1 +1,1 @@
-Junior Software Engineer | Automotive Systems Focus
+Junior Software Engineer | Python | Cybersecurity
