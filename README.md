@@ -1,1 +1,1 @@
-Junior Software Engineer | Python | Cybersecurity
+Computer Science Student | Python | Cybersecurity
