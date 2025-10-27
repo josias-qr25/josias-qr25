@@ -1,1 +1,1 @@
-Computer Science Student | Python | Cybersecurity
+Game Developer Intern @ Chromatic Games
