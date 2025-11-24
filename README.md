@@ -1,1 +1,1 @@
-Game Developer Intern @ Chromatic Games
+Junior Software Engineer | Founder of Woolman Tools
