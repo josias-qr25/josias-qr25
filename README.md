@@ -1,1 +1,1 @@
-Junior Software Engineer | Founder of Woolman Tools
+Junior Software Engineer
